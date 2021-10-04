@@ -1,2 +1,0 @@
-# Teste
-RSO QUE EU FAÇO AQUI
